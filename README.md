@@ -1,3 +1,1 @@
-- Madison Hurd
-- @mnhurd
-- madisonhurd97@gmail.com
+
